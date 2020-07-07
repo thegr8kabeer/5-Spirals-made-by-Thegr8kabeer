@@ -10,5 +10,7 @@ Below is a preview of the code
 Thegr8kabeer once said:
 >“I am committed to push my branch to the master”
 
-Happy Coding! and don't forget to follow me on instagram at https://instagram.com/thegr8kabeer/
+Happy Coding! :smiley:
+
+And don't forget to follow me on [Twitter](https://twitter.com/thegr8kabeer)
 
